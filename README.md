@@ -108,4 +108,14 @@ When my eye is single to God’s glory (3 Nephi 13:22), even debugging feels sac
 
 ### 📚 References (APA 7)
 
-- Brown, K. G. (2024). *The Eternal Gift of Testimony*
+- Brown, K. G. (2024). *The Eternal Gift of Testimony.* The Church of Jesus Christ of Latter-day Saints.  
+- Rasband, J. R. (2024). *The Plan of Mercy.* The Church of Jesus Christ of Latter-day Saints.  
+- Stevenson, G. E. (2024). *Blessed Are the Peacemakers.* The Church of Jesus Christ of Latter-day Saints.  
+- Uchtdorf, D. F. (2024). *Do Your Part with All Your Heart.* The Church of Jesus Christ of Latter-day Saints.  
+- Doctrine and Covenants 88:119; 3 Nephi 13:19–22; Alma 37:6  
+- Bednar, D. A. (2018). *Gather Together in One All Things in Christ.* The Church of Jesus Christ of Latter-day Saints.  
+
+---
+
+**💡 Final Thought:**  
+This portfolio is a living witness: **Code with purpose. Lead with love. Serve with faith.**
